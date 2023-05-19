@@ -4,7 +4,7 @@
  
 ![Sorry image is not available](images/logodownload.png)
 
-ONLINE LENDING PLATFORM l Toronto, ON l (phone pic) - 888.285.0990 (M-F 09am - 05pm) l hello@borrowell.com I https://www.linkedin.com/company/borrowell/ 
+ONLINE LENDING PLATFORM | Toronto, ON | Ph.No - +1 888.285.0990 (M-F 09am - 05pm) | hello@borrowell.com | https://www.linkedin.com/company/borrowell/ 
 
 ## **COMPANY HISTORY & OVERVIEW** 
 
